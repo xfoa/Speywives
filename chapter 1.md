@@ -4,7 +4,7 @@ _Cauld._ The kind that seeps into your bones, needlefelted in by sharp rain; the
 
 Questions and blame and guilt and anger were filtering into her head as the curtain of adrenaline began to lift. _I should've seen this coming_-- she corrected herself: _I should've listened to it. I should should have trusted myself._
 
-Closing her eyes as she exhaled the acrid, comforting smoke, she shook her head as if these thoughts would lose their hold and fall off. _Stupid, stupid, stupid. Stupid._ She took another eager drag, hungry to shorten an already long night shorter.
+Closing her eyes as she exhaled the acrid, comforting smoke, she shook her head as if these thoughts would lose their hold and fall off. _Stupid, stupid, stupid. Stupid._ She took another eager drag, hungry to make an already long night shorter.
 
 There was nothing more tying her to this place tonight, she thought as the music continued blaring from the massive oak doors of the club, may as well take a taxi home. Stubbing out half her menthol on the wall and replacing what remained into its silver case, she dug out her phone and fumbled her route home in the app on autopilot.
 
