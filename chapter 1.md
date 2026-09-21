@@ -1,6 +1,6 @@
 # Chapter 1
 
-_Cauld._ The kind that seeps into your bones, needlefelted in by sharp rain; the kind that requires heat from within to vanquish. _A helluva way to end a night_, thought Siobhan, taking another drag of her cigarette to both calm her nerves and warm her body. She peered over her arm in a futile attempt to survey the damage. A ripped sleeve, but thankfully no visible blood.
+_Cauld._ The kind that seeps into your bones, needlefelted in by sharp rain; the kind that requires heat from within to vanquish. _A helluva way to end a night_, thought Siobhan, taking another drag of her cigarette to both calm her nerves and warm her body. She peered over her arm in a futile attempt to survey the damage: a ripped sleeve, but thankfully no visible blood.
 
 Questions and blame and guilt and anger were filtering into her head as the curtain of adrenaline began to lift. _I should've seen this coming_-- she corrected herself: _I should've listened to it. I should should have trusted myself._
 
