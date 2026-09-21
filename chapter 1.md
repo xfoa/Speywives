@@ -8,5 +8,6 @@ Closing her eyes as she exhaled the acrid, comforting smoke, she shook her head 
 
 There was nothing more tying her to this place tonight, and as the music continued blaring from the massive oak doors of the club, she thought she may as well take a taxi home. Stubbing out half her menthol on the wall and replacing what remained into its silver case, she dug out her phone and fumbled her route home in the app on autopilot.
 
-The taxi landed with a dull thud, and she tapped her phone on the door. With a calculatedly inoffensive _ping_ of recognition, the door unlocked and she stepped inside, the gentle slam of the door cutting out the blare of the outside as she sat.
-Silently, the taxi took off, the club and the North Bridge becoming small and insignificant under her. She let out noise, half sigh, half soft scream, releasing some tension now that there was no-one else around to hear her.
+The taxi landed with a dull thud, and she tapped her phone on the door. With a calculatedly inoffensive _ping_ of recognition, the door unlocked and she stepped inside, the gentle slam of the door cutting out the blare of the outside as she sat. 
+
+Silently, the taxi took off. As the club and the North Bridge became insignificant under her, she let out noise, half sigh, half soft scream, releasing some tension now that there was no-one else around to hear her.
