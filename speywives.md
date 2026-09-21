@@ -513,3 +513,7 @@ live wire between them: each is the other's blind spot.
   to model the other first?
 - Who is the cartel's counter-reader, and what does that person
   want besides winning?
+
+---
+
+* Attach sound/musical descriptions and metaphors to Siobhan; physical/tactile descriptions/metaphors to Emily.
